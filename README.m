@@ -1,0 +1,2 @@
+# wandersono
+Ola meu nome e wanderson tenho 15 ano estudo no colegio branca da mota estou estudando por meio da alura e me desenvolvendo na linguagem scratch e javaScript. tenho um pouco de difilcudade para fazer uma biografia minha mais vou tentar meu primeiro ano como estudante do branca da mota sou jogador do aruko esporte brasil moro em alojamento des do ano passado,meu futuro e ser um jogador de futebol tento lidar com meus ploblemas e as vezes bate uma saudades da minha familia fiz muitos amigos do colegio gosto um pouco de jogar volei.
